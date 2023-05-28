@@ -1,3 +1,3 @@
 # Wallpapers
 
-En este repositorio encontraras todos mi wallpapers
+En este repositorio encontraras todos mis fondos de pantalla
